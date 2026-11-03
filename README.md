@@ -1,5 +1,5 @@
 # Alice (Yi-Chun) Lai
-📍 Bellevue, WA | ✉️ Alice.Lai@Paccar.com | 📞 (425) 786-3757
+📍 Bellevue, WA | ✉️ 
 
 ## 💡 Professional Summary
 PACCAR Corporate Payroll Accountant with 2 years of SAP month-end close, journal entries, GL and balance sheet reconciliations, and SOX internal audit experience — plus 7 years of lease contract administration and property management before PACCAR. Recognized for precision in high-volume variance analysis, cross-divisional collaboration, and training three contract accountants to full productivity. Passed the Uniform CPA Examination. Now bringing both sides of the lease accounting role — corporate accounting rigor and hands-on lease experience — to PACCAR Financial.
