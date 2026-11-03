@@ -2,7 +2,7 @@
 📍 Bellevue, WA | ✉️ https://www.linkedin.com/in/alice-lai-wa
 
 ## 💡 Professional Summary
-PACCAR Corporate Payroll Accountant with 2 years of SAP month-end close, journal entries, GL and balance sheet reconciliations, and SOX internal audit experience — plus 7 years of lease contract administration and property management before PACCAR. Recognized for precision in high-volume variance analysis, cross-divisional collaboration, and training three contract accountants to full productivity. Passed the Uniform CPA Examination. Now bringing both sides of the lease accounting role — corporate accounting rigor and hands-on lease experience — to PACCAR Financial.
+Corporate Accountant with 2 years of SAP month-end close, GL and balance sheet reconciliations, and SOX internal audit experience at PACCAR, backed by 7 years of contract administration and property management. Recognized for precision in high-volume variance analysis, cross-divisional collaboration, and training contract accountants to full productivity. Passed the Uniform CPA Examination. Proven ability to bridge rigorous financial reporting with hands-on operational experience to drive accurate, compliant, and efficient accounting processes.
 
 ---
 
